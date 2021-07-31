@@ -1,2 +1,2 @@
-# GrandComputers.github.io
+# GRANDCOMPUTERS.github.io
  
